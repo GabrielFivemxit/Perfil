@@ -12,4 +12,4 @@ Gmail: gabrielfernandes@gmail.com
 
 Instagram: @gabrielfsilva.0
 
-![.](https://tenor.com/pt-BR/view/test-typing-codes-gif-15828752)
+![.](https://tenor.com/bezWC.gif)
