@@ -8,6 +8,6 @@ Meu nome é Gabriel
 
 ### Você pode entrar em contato comigo ✉️
 
-###Gmail: gabrielfernandes@gmail.com
+### Gmail: gabrielfernandes@gmail.com
 
-###Instagram: gabrielfsilva.0
+### Instagram: gabrielfsilva.0
