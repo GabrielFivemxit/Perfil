@@ -12,4 +12,4 @@ Gmail: gabrielfernandes@gmail.com
 
 Instagram: @gabrielfsilva.0
 
-![.](https://tenor.com/bezWC.gif)
+![](https://tenor.com/bezWC.gif)
